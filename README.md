@@ -1,3 +1,9 @@
 # Arrays-in-java
 
-![ezgif com-gif-maker](https://user-images.githubusercontent.com/77443080/150676999-50be1589-7dfa-45ea-97f9-8894a794034a.gif)
+
+
+
+
+
+https://user-images.githubusercontent.com/77443080/150677120-1ba87344-2eec-4101-a40a-a1ed1fc3c699.mp4
+
